@@ -36,7 +36,8 @@
  ![image](https://user-images.githubusercontent.com/113594316/198233336-dd9f5c19-481b-486a-928a-99c32a732f89.png)
 
  ## OUTPUT
- ![Uploading 1.2 edm.jpeg…]()
+ ![1 2 edm](https://github.com/user-attachments/assets/5a7eaa8c-f278-4fdf-9500-ee4a37b53888)
+
 
  
  ## RESULT
